@@ -1,1 +1,1 @@
-I am Leeshma Adari, a graduate student majoring in Computer Science. I love reading crime novels and solving puzzles. I want to explore and implement my skills from Software Engineering.  
+I am Leeshma Adari, a graduate student majoring in Computer Science. I love reading crime novels and solving puzzles. I want to explore and implement my skills from Software Engineering. I love coastal areas and beaches. 
